@@ -12,7 +12,7 @@
 
 ### 90% off for 6 Months
 
-[![Xero 90% Off Promotion Banner](https://ecombuilderinsider.com/wp-content/uploads/2026/02/Screenshot-2026-02-02-100349.png)](https://ecombuilderinsider.com/xero-promo-code)
+[![Xero 90% Off Promotion Banner](https://ecombuilderinsider.com/wp-content/uploads/2026/02/Screenshot-2026-02-02-100349.png)](https://ecombuilderinsider.com/xero-coupon-promo/)
 
 **[👉 Claim Your 90% Discount + $100 Gift Card Here](https://ecombuilderinsider.com/xero-coupon-promo/)**
 
