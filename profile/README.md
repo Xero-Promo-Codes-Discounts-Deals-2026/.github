@@ -1,3 +1,5 @@
+**Last Updated: February 2, 2026**
+
 **Quick Disclosure:** This post contains affiliate links. If you sign up for Xero through links on this page, I may earn a commission at no extra cost to you. All recommendations are based on research and real user experience.
 
 ---
@@ -10,7 +12,7 @@
 
 ### 90% off for 6 Months
 
-![Xero 90% Off Promotion Banner](https://ecombuilderinsider.com/wp-content/uploads/2026/02/Screenshot-2026-02-02-100349.png)
+[![Xero 90% Off Promotion Banner](https://ecombuilderinsider.com/wp-content/uploads/2026/02/Screenshot-2026-02-02-100349.png)](https://ecombuilderinsider.com/xero-promo-code)
 
 **[👉 Claim Your 90% Discount + $100 Gift Card Here](https://ecombuilderinsider.com/xero-coupon-promo/)**
 
@@ -69,7 +71,7 @@ Here's what Xero doesn't make obvious about the Amazon Gift Card:
 
 Stop guessing. Here's exactly what you save:
 
-![Xero Pricing Plans](https://ecombuilderinsider.com/wp-content/uploads/2026/01/Screenshot-2026-01-23-172258-scaled.png)
+[![Xero Pricing Plans](https://ecombuilderinsider.com/wp-content/uploads/2026/01/Screenshot-2026-01-23-172258-scaled.png)](https://ecombuilderinsider.com/xero-promo-code)
 
 ### Growing Plan (Most Popular)
 
@@ -109,7 +111,7 @@ While the 90% discount is the best current offer, Xero has other promotional tie
 
 ### 75% Off for 6 Months
 
-![Xero 75% Off Promotion](https://ecombuilderinsider.com/wp-content/uploads/2026/02/Screenshot-2026-02-02-100455.png)
+[![Xero 75% Off Promotion](https://ecombuilderinsider.com/wp-content/uploads/2026/02/Screenshot-2026-02-02-100455.png)](https://ecombuilderinsider.com/xero-promo-code)
 
 **[👉 Claim 75% Off Discount Here](https://ecombuilderinsider.com/xero-coupon-promo/)**
 
@@ -119,7 +121,7 @@ While the 90% discount is the best current offer, Xero has other promotional tie
 
 ### 50% Off for 3 Months
 
-![Xero 50% Off Promotion](https://ecombuilderinsider.com/wp-content/uploads/2026/02/Screenshot-2026-02-02-100425.png)
+[![Xero 50% Off Promotion](https://ecombuilderinsider.com/wp-content/uploads/2026/02/Screenshot-2026-02-02-100425.png)](https://ecombuilderinsider.com/xero-promo-code)
 
 **[👉 Get 50% Off for 3 Months](https://ecombuilderinsider.com/xero-coupon-promo/)**
 
@@ -133,7 +135,7 @@ While the 90% discount is the best current offer, Xero has other promotional tie
 
 ## How to Claim the Discount (Step-by-Step)
 
-![Xero 90% Discount for 6 Months](https://ecombuilderinsider.com/wp-content/uploads/2026/01/xero-promo-code-for-5-months-scaled.png)
+[![Xero 90% Discount for 6 Months](https://ecombuilderinsider.com/wp-content/uploads/2026/01/xero-promo-code-for-5-months-scaled.png)](https://ecombuilderinsider.com/xero-promo-code)
 
 ### Step 1: Verify Eligibility
 
@@ -152,7 +154,7 @@ Before clicking anything:
 
 ### Step 3: Complete Signup
 
-![Xero Signup Form](https://ecombuilderinsider.com/wp-content/uploads/2026/01/fill-the-required-fields-scaled.png)
+[![Xero Signup Form](https://ecombuilderinsider.com/wp-content/uploads/2026/01/fill-the-required-fields-scaled.png)](https://ecombuilderinsider.com/xero-promo-code)
 
 1. Fill in your business details:
    - Business name
@@ -328,10 +330,12 @@ Even with massive savings, here are scenarios where waiting makes more sense:
 
 **[👉 Click Here to Get 90% Off + $100 Gift Card](https://ecombuilderinsider.com/xero-coupon-promo/)**
 
-1. Select the Growing Plan (best gift card eligibility)
-2. Verify the 90% discount shows at checkout
-3. Complete signup
-4. Set a 3-month calendar reminder to evaluate before renewal
+1. Click the link above to access Xero's promotional offer
+2. Select Growing Plan (best balance of features + gift card eligibility)
+3. Verify 90% discount at checkout (auto-applied)
+4. Complete signup
+5. Screenshot confirmation for records
+6. Set calendar reminder for month 3 (gift card check) and month 5 (renewal decision)
 
 **Time investment:** 15 minutes to sign up, 2-3 weeks to master
 
